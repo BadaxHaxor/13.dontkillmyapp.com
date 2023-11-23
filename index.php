@@ -16,7 +16,8 @@
 <meta property="og:description" content="Situs slot gacor gampang menang maxwin slot online hari ini yang sering kasih jackpot terbesar. Daftar situs judi slot88 online terpercaya dan terbaik 2023 game slot terbaru terlengkap link info bocoran slot gacor rtp tinggi." />
 <meta property="og:type" content="website" />
 <meta name="theme-color" content="#1E1E1E" />
-<link rel="amphtml" href="https://pinjamseratus.vip/4/">
+<link rel="amphtml" href="https://pinjamseratus.vip/site/4/
+">
 <link href="https://i.ibb.co/nCPmnKr/images.png" rel="icon" type="image/x-icon" />
 <link rel="apple-touch-icon" href="https://i.ibb.co/nCPmnKr/images.png" />
 <meta name="google-site-verification" content="kWdZmwRJM2gqsK8ZOApThZkOotjwp6k7SsRy1msFSGU"/>
@@ -908,4 +909,4 @@
       </div>
     </div>
 </body>
-</html>l
+</html>
